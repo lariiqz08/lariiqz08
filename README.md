@@ -7,7 +7,7 @@ Utilizo esse espaço para salvar meus projetos e compartilhar meus códigos.
 ### Meu e-mail para contato é:
 📧larissa.danielly.gomes@escola.pr.gov.br]
 
-
+![](https://media.tenor.com/cdgu_rxP5vwAAAAd/cat-hiss.gif)
 
 <!--
 **lariiqz08/lariiqz08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
